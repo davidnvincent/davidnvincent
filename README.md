@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @davidnvincent
+- 👀 Here's some stuff I've coded in and out of school
